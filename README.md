@@ -15,9 +15,7 @@
 
 - 💬 Ask me about **Unity, Game Development and VR Development**
 
-- 📫 How to reach me **sfybusinessinq@gmail.com**
-
-- 📄 Know about my experiences [https://docs.google.com/document/d/1xbLoOU6BPFn8I9GH2AP477BIAashcgWeOgSYHlztcYI/edit?usp=sharing](https://docs.google.com/document/d/1xbLoOU6BPFn8I9GH2AP477BIAashcgWeOgSYHlztcYI/edit?usp=sharing)
+- 📫 How to reach me **samabiiodun@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
